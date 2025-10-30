@@ -37,8 +37,7 @@
 
    b. Ketelitian adalah pekerjaan diselesaikan dengan baik, tanpa kesalahan.
 
-   c. Tanggung jawab adalah sikap atau perilaku untuk melakukan sesuatu dengan sungguh-sungguh dan siap menanggung segala risiko
-       dan perbuatan.
+   c. Tanggung jawab adalah sikap atau perilaku untuk melakukan sesuatu dengan sungguh-sungguh dan siap menanggung segala risiko dan perbuatan.
 
    d. Komunikasi adalah keahlian, kemampuan dan kepandaian dalam berinteraksi dengan orang-orang di sekitarnya.
 
